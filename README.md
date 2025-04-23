@@ -1,0 +1,1 @@
+# Gunluk-kiralik-daire
